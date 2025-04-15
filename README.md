@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fzerkk
 - 👀 I’m interested in beauty
-- 🌱 I’m currently learning 408
+- 🌱 I’m currently learning in university of FuZhou
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
